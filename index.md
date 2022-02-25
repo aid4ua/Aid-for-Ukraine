@@ -6,8 +6,10 @@
 
 ## Poland
 
-### Volunteers
+### Wolontariusze
 1. Zbiórka darów rzeczowych dla uchodźców z Ukrainy: [https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/](https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/) Link provided by [https://pck.pl](https://pck.pl)
+
+2. Propozycje darów i pomocy można przesyłać na adres darczyncy@um.warszawa.pl Link provided by [https://um.warszawa.pl/-/pomoz-ukraincom-zostan-wolontariuszem](https://um.warszawa.pl/-/pomoz-ukraincom-zostan-wolontariuszem)
 
 ## Romania
 
