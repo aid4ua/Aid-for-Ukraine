@@ -7,7 +7,7 @@
 ## Poland
 
 ### Volunteers
-1. Polski Czerwony Krzyż https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/
+1. Zbiórka darów rzeczowych dla uchodźców z Ukrainy: [https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/](https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/) Link provided by [https://pck.pl](https://pck.pl)
 
 ## Romania
 
