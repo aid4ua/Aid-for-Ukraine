@@ -26,6 +26,8 @@
 ## Romania
 ### Aid
 1. Accommodation in the Maramureș area [https://www.facebook.com/groups/maramureshostingukraine/](https://www.facebook.com/groups/maramureshostingukraine/)
+2. знайдіть тут надійну допомогу від румунів [https://www.facebook.com/groups/unitipentruucraina/](https://www.facebook.com/groups/unitipentruucraina/)
+
 ### Entering the country
 [https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 
