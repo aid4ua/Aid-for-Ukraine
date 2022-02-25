@@ -1,5 +1,3 @@
-# Aid overview for Ukraine
-
 ## Hungary
 
 
