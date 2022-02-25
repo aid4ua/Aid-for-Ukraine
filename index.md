@@ -9,6 +9,7 @@
 [https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 ### Aid
 1. Reception points for Ukrainian arriving to the country [https://www.gov.pl/web/udsc/ukraina](https://www.gov.pl/web/udsc/ukraina)
+2. Pomoc dla Ukrainy🇺🇦 Допомога Україні: mieszkanie oraz inna pomoc obywatel: [https://www.facebook.com/groups/683793819641997/](https://www.facebook.com/groups/683793819641997/)
 
 ### Wolontariusze
 1. Zbiórka darów rzeczowych dla uchodźców z Ukrainy: [https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/](https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/) Link provided by [https://pck.pl](https://pck.pl)
@@ -38,5 +39,3 @@ Provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
 ## General 
 
 ## https://bnt.eu/bnt-news/help-guide-for-ukrainians/
-
-### Volunteers 
