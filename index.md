@@ -4,7 +4,8 @@
 
 ## Germany
 ### Aid
-1. all around Berlin [https://linktr.ee/ukrainehelpberlin](https://linktr.ee/ukrainehelpberlin)
+1. All around Berlin [https://linktr.ee/ukrainehelpberlin](https://linktr.ee/ukrainehelpberlin)
+
 ## Hungary
 ### Entering the country
 [https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
@@ -15,11 +16,12 @@
 
 
 ## Poland
-### Entering the country
-[https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 ### Aid
 1. Reception points for Ukrainian arriving to the country [https://www.gov.pl/web/udsc/ukraina](https://www.gov.pl/web/udsc/ukraina)
 2. Pomoc dla Ukrainy🇺🇦 Допомога Україні: mieszkanie oraz inna pomoc obywatel: [https://www.facebook.com/groups/683793819641997/](https://www.facebook.com/groups/683793819641997/)
+
+### Entering the country
+[https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 
 ### Wolontariusze
 1. Zbiórka darów rzeczowych dla uchodźców z Ukrainy: [https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/](https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/) Link provided by [https://pck.pl](https://pck.pl)
@@ -41,14 +43,14 @@
 2. Dacă ai o facilitate de cazare (comercială sau privată) pe care ești dispus să o împarți, gratuit, cu persoanele refugiate din Ucraina, înscrie-te și postează în acest grup [https://www.facebook.com/groups/maramureshostingukraine/](https://www.facebook.com/groups/maramureshostingukraine/)
 
 ## Slovakia
-
-### Entering the country
-[https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 ### Aid
 1. Form to ask for accommodation, general aid: [https://bit.ly/coming_from_ukraine](https://bit.ly/coming_from_ukraine) 
 Provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
 
 2. General aid [https://www.facebook.com/groups/ukrajincivsk/](https://www.facebook.com/groups/ukrajincivsk/)
+
+### Entering the country
+[https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 
 ### Dobrovoľníci
 1. Nahlásiť sa ako dobrovoľníci alebo s ponukou ubytovania môžete ešte stále tu: [https://bit.ly/cvo_dobrovolnici](https://bit.ly/cvo_dobrovolnici) Link provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
