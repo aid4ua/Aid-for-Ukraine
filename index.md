@@ -1,11 +1,13 @@
+
+
 ## Hungary
-
-
-## Latvia
-
+### Entering the country
+[https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 
 ## Poland
-
+### Entering the country
+[https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
+### Aid
 1. Reception points for Ukrainian arriving to the country [https://www.gov.pl/web/udsc/ukraina](https://www.gov.pl/web/udsc/ukraina)
 
 ### Wolontariusze
@@ -13,11 +15,18 @@
 
 2. Propozycje darów i pomocy można przesyłać na adres darczyncy@um.warszawa.pl Link provided by [https://um.warszawa.pl/-/pomoz-ukraincom-zostan-wolontariuszem](https://um.warszawa.pl/-/pomoz-ukraincom-zostan-wolontariuszem)
 
-## Romania
+3. Bielsko-Biała, Cieszyn, Czechowice-Dziedzice, Pszczyna, Żywiec [https://caritas.bielsko.pl/ukraina/](https://caritas.bielsko.pl/ukraina/) Link provided by [https://caritas.bielsko.pl/](https://caritas.bielsko.pl/)
 
+## Romania
+### Aid
+### Entering the country
+[https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 
 ## Slovakia
 
+### Entering the country
+[https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
+### Aid
 1. Form to ask for accommodation, general aid: [https://bit.ly/coming_from_ukraine](https://bit.ly/coming_from_ukraine) 
 Provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
 
@@ -26,7 +35,8 @@ Provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
 ### Dobrovoľníci
 1. Nahlásiť sa ako dobrovoľníci alebo s ponukou ubytovania môžete ešte stále tu: [https://bit.ly/cvo_dobrovolnici](https://bit.ly/cvo_dobrovolnici) Link provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
 
+## General 
 
-### Support or Contact
+## https://bnt.eu/bnt-news/help-guide-for-ukrainians/
 
-contact@aid4ukraine.eu 
+### Volunteers 
