@@ -15,7 +15,7 @@
 
 2. Propozycje darów i pomocy można przesyłać na adres darczyncy@um.warszawa.pl Link provided by [https://um.warszawa.pl/-/pomoz-ukraincom-zostan-wolontariuszem](https://um.warszawa.pl/-/pomoz-ukraincom-zostan-wolontariuszem)
 
-3. Bielsko-Biała, Cieszyn, Czechowice-Dziedzice, Pszczyna, Żywiec [https://bielsko.niedziela.pl/artykul/77561/Bielsko-zywiecka-Caritas-i-PCK-pomagaja](https://bielsko.niedziela.pl/artykul/77561/Bielsko-zywiecka-Caritas-i-PCK-pomagaja)
+3. Bielsko-Biała, Cieszyn, Czechowice-Dziedzice, Pszczyna, Żywiec [https://caritas.bielsko.pl/ukraina/](https://caritas.bielsko.pl/ukraina/) Link provided by [https://caritas.bielsko.pl/](https://caritas.bielsko.pl/)
 
 ## Romania
 
