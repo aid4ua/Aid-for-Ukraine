@@ -1,4 +1,6 @@
+## Finland
 
+1. Applying for asylum [https://migri.fi/en/asylum-in-finland](https://migri.fi/en/asylum-in-finland)
 
 ## Hungary
 ### Entering the country
