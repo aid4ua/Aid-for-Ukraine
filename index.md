@@ -25,8 +25,13 @@
 
 ## Romania
 ### Aid
+1. Accommodation in the Maramureș area [https://www.facebook.com/groups/maramureshostingukraine/](https://www.facebook.com/groups/maramureshostingukraine/)
 ### Entering the country
 [https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
+
+### Voluntarilor
+1. Grupul este destinat voluntarilor, donatorilor, tuturor celor care vor să se implice să-i ajutăm pe vecinii noștri din Ucraina afectați de invazia Rusiei.  [https://www.facebook.com/groups/unitipentruucraina/](https://www.facebook.com/groups/unitipentruucraina/)
+2. Dacă ai o facilitate de cazare (comercială sau privată) pe care ești dispus să o împarți, gratuit, cu persoanele refugiate din Ucraina, înscrie-te și postează în acest grup [https://www.facebook.com/groups/maramureshostingukraine/](https://www.facebook.com/groups/maramureshostingukraine/)
 
 ## Slovakia
 
