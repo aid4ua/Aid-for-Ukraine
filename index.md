@@ -1,37 +1,25 @@
-## Welcome to GitHub Pages
+## Welcome to Aid overview for Ukraine
 
-You can use the [editor on GitHub](https://github.com/aid4ua/website/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Hungary
+-------
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Latvia
+------
 
-### Markdown
+Poland
+------
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Romania
+-------
 
-```markdown
-Syntax highlighted code block
+Slovakia
+--------
 
-# Header 1
-## Header 2
-### Header 3
+1. Form to ask for accommodation, general aid: https://forms.office.com/pages/responsepage.aspx?id=URQ7PPs25kqeRhjKJcKYzHPrP_pzlw9LslUMZHfoM2xUQkYwWllXSFoxOThOVFM2UUdZQUM3VUxXSi4u
+ Provided by https://clovekvohrozeni.sk/
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/aid4ua/website/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+2. General aid https://www.facebook.com/groups/ukrajincivsk/
 
 ### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+contact@aid4ukraine.eu 
