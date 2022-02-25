@@ -6,6 +6,8 @@
 
 ## Poland
 
+### Volunteers
+1. Polski Czerwony Krzyż https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/
 
 ## Romania
 
