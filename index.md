@@ -6,6 +6,8 @@
 
 ## Poland
 
+1. Reception points for Ukrainian arriving to the country [https://www.gov.pl/web/udsc/ukraina](https://www.gov.pl/web/udsc/ukraina)
+
 ### Wolontariusze
 1. Zbiórka darów rzeczowych dla uchodźców z Ukrainy: [https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/](https://pck.pl/zbiorka-darow-rzeczowych-dla-cuhcodzcow-z-ukrainy/) Link provided by [https://pck.pl](https://pck.pl)
 
