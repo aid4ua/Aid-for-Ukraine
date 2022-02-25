@@ -9,6 +9,11 @@
 ### Entering the country
 [https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 
+## Moldova
+### Aid
+1. General aid [https://www.facebook.com/groups/347615063908402/](https://www.facebook.com/groups/347615063908402/)
+
+
 ## Poland
 ### Entering the country
 [https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
