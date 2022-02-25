@@ -19,8 +19,8 @@ Provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
 
 2. General aid [https://www.facebook.com/groups/ukrajincivsk/](https://www.facebook.com/groups/ukrajincivsk/)
 
-### Volunteers
-1. Volunteers to help can sign up here: [https://bit.ly/cvo_dobrovolnici](https://bit.ly/cvo_dobrovolnici) Link provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
+### Dobrovoľníci
+1. Nahlásiť sa ako dobrovoľníci alebo s ponukou ubytovania môžete ešte stále tu: [https://bit.ly/cvo_dobrovolnici](https://bit.ly/cvo_dobrovolnici) Link provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
 
 
 ### Support or Contact
