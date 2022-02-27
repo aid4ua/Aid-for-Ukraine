@@ -49,6 +49,7 @@
 
 ## Romania
 ### Aid
+1. Accommodation, food, transport [https://refugees.ro/](https://refugees.ro)
 1. Accommodation in the Maramureș area [https://www.facebook.com/groups/maramureshostingukraine/](https://www.facebook.com/groups/maramureshostingukraine/)
 2. знайдіть тут надійну допомогу від румунів [https://www.facebook.com/groups/unitipentruucraina/](https://www.facebook.com/groups/unitipentruucraina/)
 
