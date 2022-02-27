@@ -114,10 +114,11 @@
 
 ## Slovakia
 ### Aid
-1. Form to ask for accommodation, general aid: [https://bit.ly/coming_from_ukraine](https://bit.ly/coming_from_ukraine) 
+1. [https://ktopomozeukrajine.sk/](https://ktopomozeukrajine.sk/)
+2. Form to ask for accommodation, general aid: [https://bit.ly/coming_from_ukraine](https://bit.ly/coming_from_ukraine) 
 Provided by [https://clovekvohrozeni.sk/](https://clovekvohrozeni.sk/)
 
-2. General aid [https://www.facebook.com/groups/ukrajincivsk/](https://www.facebook.com/groups/ukrajincivsk/)
+3. General aid [https://www.facebook.com/groups/ukrajincivsk/](https://www.facebook.com/groups/ukrajincivsk/)
 
 ### Entering the country
 [https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
