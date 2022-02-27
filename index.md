@@ -1,3 +1,8 @@
+## Czechia
+
+### Aid
+1. Accomondation [https://uprchlici-vitejte.cz/](https://uprchlici-vitejte.cz/)
+
 ## Estonia
 
 ### Volunteers
@@ -12,6 +17,7 @@
 ## Germany
 ### Aid
 1. All around Berlin [https://linktr.ee/ukrainehelpberlin](https://linktr.ee/ukrainehelpberlin)
+2. Accomondation [https://pad.riseup.net/p/E0x-D-ZiJZlHXbDAGG7W-keep](https://pad.riseup.net/p/E0x-D-ZiJZlHXbDAGG7W-keep)
 
 ## Hungary
 ### Entering the country
@@ -27,6 +33,7 @@
 1. Reception points for Ukrainian arriving to the country [https://www.gov.pl/web/udsc/ukraina](https://www.gov.pl/web/udsc/ukraina)
 2. Pomoc dla Ukrainy🇺🇦 Допомога Україні: mieszkanie oraz inna pomoc obywatel: [https://www.facebook.com/groups/683793819641997/](https://www.facebook.com/groups/683793819641997/)
 
+
 ### Entering the country
 [https://bnt.eu/bnt-news/help-guide-for-ukrainians/](https://bnt.eu/bnt-news/help-guide-for-ukrainians/)
 
@@ -36,6 +43,8 @@
 2. Propozycje darów i pomocy można przesyłać na adres darczyncy@um.warszawa.pl Link provided by [https://um.warszawa.pl/-/pomoz-ukraincom-zostan-wolontariuszem](https://um.warszawa.pl/-/pomoz-ukraincom-zostan-wolontariuszem)
 
 3. Bielsko-Biała, Cieszyn, Czechowice-Dziedzice, Pszczyna, Żywiec [https://caritas.bielsko.pl/ukraina/](https://caritas.bielsko.pl/ukraina/) Link provided by [https://caritas.bielsko.pl/](https://caritas.bielsko.pl/)
+
+4. Pomóż jako osoba prywatna [https://mapagoscinnosci.pl/](https://mapagoscinnosci.pl/)
 
 ## Romania
 ### Aid
