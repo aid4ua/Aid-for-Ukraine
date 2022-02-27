@@ -2,6 +2,7 @@
 
 ### Aid
 1. Accomondation [https://uprchlici-vitejte.cz/](https://uprchlici-vitejte.cz/)
+2. Suroundings of Hranice na Moravě [https://www.facebook.com/bouchalpetr/posts/10224183530830227](https://www.facebook.com/bouchalpetr/posts/10224183530830227)
 
 ## Estonia
 
