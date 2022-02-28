@@ -13,6 +13,7 @@
 1. Accomondation [https://uprchlici-vitejte.cz/](https://uprchlici-vitejte.cz/)
 2. Suroundings of Hranice na Moravě [https://www.facebook.com/bouchalpetr/posts/10224183530830227](https://www.facebook.com/bouchalpetr/posts/10224183530830227)
 3. ДЛЯ БІЖЕНЦІВ [https://sites.google.com/view/drive-for-refugees/](https://sites.google.com/view/drive-for-refugees/)
+4. Українську версію тексту можна знайти тут [https://www.terapie.cz/hlavu-nad-vodou-ukrayina](https://www.terapie.cz/hlavu-nad-vodou-ukrayina)
 
 ### Podpora
 
