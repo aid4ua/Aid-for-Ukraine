@@ -18,6 +18,7 @@
 
 1. Kam poslat penize? [https://www.mesec.cz/clanky/jak-muzete-poslat-penize-primo-ukrajinske-vlade-prehled-uctu-a-postupy/](https://www.mesec.cz/clanky/jak-muzete-poslat-penize-primo-ukrajinske-vlade-prehled-uctu-a-postupy/)
 2. PRO ŘIDIČE / FOR DRIVER [https://sites.google.com/view/drive-for-refugees/](https://sites.google.com/view/drive-for-refugees/)
+3. [https://www.facebook.com/groups/pomocukrajine/](https://www.facebook.com/groups/pomocukrajine/)
 
 ## Estonia
 
