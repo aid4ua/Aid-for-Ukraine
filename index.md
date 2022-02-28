@@ -1,6 +1,7 @@
 ## Austria
 
 ### Aid 
+1. Безпечне спальне місце [https://homesforukraine.eu/uk/home-ukr/](https://homesforukraine.eu/uk/home-ukr/)
 1. [https://linktr.ee/InfoUkraineAustria](https://linktr.ee/InfoUkraineAustria)
 
 ### Unterkunft
