@@ -12,6 +12,12 @@
 ### Aid
 1. Accomondation [https://uprchlici-vitejte.cz/](https://uprchlici-vitejte.cz/)
 2. Suroundings of Hranice na Moravě [https://www.facebook.com/bouchalpetr/posts/10224183530830227](https://www.facebook.com/bouchalpetr/posts/10224183530830227)
+3. ДЛЯ БІЖЕНЦІВ [https://sites.google.com/view/drive-for-refugees/](https://sites.google.com/view/drive-for-refugees/)
+
+### Podpora
+
+1. Kam poslat penize? [https://www.mesec.cz/clanky/jak-muzete-poslat-penize-primo-ukrajinske-vlade-prehled-uctu-a-postupy/](https://www.mesec.cz/clanky/jak-muzete-poslat-penize-primo-ukrajinske-vlade-prehled-uctu-a-postupy/)
+2. PRO ŘIDIČE / FOR DRIVER [https://sites.google.com/view/drive-for-refugees/](https://sites.google.com/view/drive-for-refugees/)
 
 ## Estonia
 
