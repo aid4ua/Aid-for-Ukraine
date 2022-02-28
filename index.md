@@ -19,6 +19,8 @@
 1. Kam poslat penize? [https://www.mesec.cz/clanky/jak-muzete-poslat-penize-primo-ukrajinske-vlade-prehled-uctu-a-postupy/](https://www.mesec.cz/clanky/jak-muzete-poslat-penize-primo-ukrajinske-vlade-prehled-uctu-a-postupy/)
 2. PRO ŘIDIČE / FOR DRIVER [https://sites.google.com/view/drive-for-refugees/](https://sites.google.com/view/drive-for-refugees/)
 3. [https://www.facebook.com/groups/pomocukrajine/](https://www.facebook.com/groups/pomocukrajine/)
+4. Chcete nabídnout ubytování pro Ukrajince? [https://www.zscr.cz/clanek/chcete-nabidnout-ubytovani-pro-ukrajince-7094](https://www.zscr.cz/clanek/chcete-nabidnout-ubytovani-pro-ukrajince-7094)
+5. Praha SBÍRKA OBLEČENÍ PRO UPRCHLÍKY Z UKRAJINY [https://www.facebook.com/Satnikprosamozivitele/posts/336350605172628](https://www.facebook.com/Satnikprosamozivitele/posts/336350605172628)
 
 ## Estonia
 
